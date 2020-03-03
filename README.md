@@ -1,1 +1,1 @@
-# Petalz
+# Petals
